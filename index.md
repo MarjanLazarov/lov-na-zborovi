@@ -51,3 +51,8 @@ https://policies.google.com/privacy
 
 Ако имате прашања за оваа политика:
 maestromlp@gmail.com
+
+## Повлекување на согласност
+
+За да ги управувате вашите преференции за реклами,
+контактирајте не на: maestromlp@gmail.com
